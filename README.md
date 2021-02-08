@@ -3,4 +3,6 @@
 
 
 # chama zap
-https:wa.me//558196207906
+
+http://Wa.me//558196207906
+
