@@ -3,5 +3,4 @@
 
 
 # chama zap
-
-![banner](wa.me//558196207906)
+https:wa.me//558196207906
